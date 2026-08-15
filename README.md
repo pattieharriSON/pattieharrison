@@ -9,3 +9,5 @@ Before you befriend me. i am pretty lonely i have very little friends to none, i
 Some of my interests include; the beatles, greys anatomy, ddlc, ninjago, d4dj, other music bands, medical related things and space and the sea! especially sharks.. hsr slightly but i kind of just like the characters, alnst, yuri on ice, my hero academia, demon slayer, one piece slightly im not super far into it though! I AM LEARNING NEW INTERESTS!! U CAN STILL INT IF WE DONT SHARE MANY INTERESTS!! IM NICE AND WILL LISTEN YOU CAN CONVERT ME JJSJS
 
 i get really uncomfy when your super dry or simply hardly replying, i also prefer to be friends with similar timezones and i dont mean that in a bad way, i just dont like staying up until 5am just to talk with you :( im EST its fine if ur 2-4 hours behind or ahead, anymore than that just is complex for me…
+
+[![Hits](https://seeyoufarm.com)](https://seeyoufarm.com)
