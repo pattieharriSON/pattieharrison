@@ -10,4 +10,4 @@ Some of my interests include; the beatles, greys anatomy, ddlc, ninjago, d4dj, o
 
 i get really uncomfy when your super dry or simply hardly replying, i also prefer to be friends with similar timezones and i dont mean that in a bad way, i just dont like staying up until 5am just to talk with you :( im EST its fine if ur 2-4 hours behind or ahead, anymore than that just is complex for me…
 
-[![Hits](https://seeyoufarm.com)](https://seeyoufarm.com)
+strawpage soon by the way AND HEY. BE MY FREAKING FRIEND I HAVE NONEEE (pref have discord okay
